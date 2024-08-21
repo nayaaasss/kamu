@@ -7,3 +7,5 @@ awokawok kanaya anak windah
 - Vina Lucu
 - Vina dermawan
 - Aamiin
+
+### Vina rabu siang mau makan tekwan
